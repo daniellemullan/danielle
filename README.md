@@ -1,2 +1,0 @@
-# danielle
-personal website
